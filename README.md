@@ -8,8 +8,7 @@
 ### About me:
 - Not single
 - poru is a pen name
-- Computer science student
-- 18, interested in python (specificly discord bot developing)
+- Interested in python, java (specificly discord bot developing)
 - Currently learning javascript
 
 ### Contact:
