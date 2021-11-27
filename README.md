@@ -8,8 +8,7 @@
 ### About me:
 - Not single
 - poru is a pen name
-- Interested in python, java (specificly discord bot developing)
-- Currently learning javascript
+- Interested in programming/software developing
 
 ### Contact:
 - discord: poru#5664
