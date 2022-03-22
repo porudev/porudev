@@ -1,4 +1,4 @@
-                  Severely depressed developer, professional idiot, absolute useless, fell in love with 0609
+                                     An absolute failure, who is regularly found vibing with his failures
                                                                                                           - poru -
 ### Hi there!
 
