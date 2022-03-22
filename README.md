@@ -1,4 +1,4 @@
-                                     An absolute failure, who is regularly found vibing with his failures
+                                 An absolute failure, who is regularly found vibing with his failures
                                                                                                           - poru -
 ### Hi there!
 
