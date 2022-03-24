@@ -1,4 +1,4 @@
-            I'm an absolute failure at whatever i'm doing, but i will never stop learning from it
+                        I'm an absolute failure at whatever i'm doing, but i will never stop learning from it
 
 ### Hi there!
 - How is your day going so far, hope it great!
