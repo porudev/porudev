@@ -11,7 +11,7 @@
 - Interested in programming/software developing
 
 ### Contact:
-- discord: poru#5664
+- discord: poru#7792
 - facebook: porudev
 - twitter: @porudev
 - reddit: porudev
