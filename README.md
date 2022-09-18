@@ -1,4 +1,4 @@
-            I'm an absolute failure at whatever i'm doing, but i will never stop learning from it
+            your friendly tech guy by day, maniac programmer by night
 
 ### Hi there!
 - How is your day so far, hope it's great!
