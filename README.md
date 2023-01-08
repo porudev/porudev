@@ -1,5 +1,3 @@
-# your friendly tech guy by day, maniac programmer by night
-
 ### Hi there!
 - How is your day so far, hope it's great!
 
