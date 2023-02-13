@@ -4,7 +4,7 @@
 ### About me:
 - Not single
 - poru is a pen name
-- Interested in programming/software developing
+- Software engineer
 
 ### Contact:
 - discord: poru#7792
